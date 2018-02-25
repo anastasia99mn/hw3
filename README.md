@@ -3,3 +3,6 @@
 ссылка на форму https://docs.google.com/forms/d/1aPYgI47gjXO1_1p8YOEuw30qsJ2Dd9heO8R7upVhYKs/edit#response=ACYDBNjwwBAeRxQ_d1NxuJwGN_Nu4f78zHx3Mmtg5Y7wm8mRCFOgS2Kmifom5Q
 
 Мой опрос был о том, как люди проводят свое свободное время, какой имеют досуг, в мое опросе участвовало 20 человек.
+
+**Выводы:**
+1) 
